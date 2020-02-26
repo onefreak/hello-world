@@ -1,1 +1,1 @@
-# vanyo e golqm oligofren
+vanyo e vegan
